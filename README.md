@@ -1,4 +1,4 @@
-# Ras-al-Kaimah-UAE-ICACIN-25-International-Confrence
+# DUBAI-UAE-ICACIN-25-International-Confrence 🇦🇪 ORG. BITS PILANI
 International Conference on Artificial Intelligence and Networking (ICAIN-2025) ✈
 <h2 align="center">📌 Conference Poster</h2>
 
